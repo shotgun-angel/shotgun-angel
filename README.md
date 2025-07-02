@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  " you ' re in the arms of the angels ; may you find some comfort here . "<br><br>
+  " i am incapable of being human "<br><br>
   calvin ; church <br>
   <i>he † him</i> <br>
   <b>whisper 2 int !</b>
